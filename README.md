@@ -1,1 +1,0 @@
-# himotonjorma.github.io
